@@ -35,3 +35,8 @@ Remember, every rep, every set, and every line of code gets us closer to our goa
 Stay active, stay motivated, and let's build a healthier future together with GymBuddy! 🌟🏆🎉
 
 
+<img width="1440" alt="gymss2" src="https://github.com/Ozgur32/Gym-App/assets/121760057/a317b7fb-1ccc-4a84-bb5a-e8978e11f9ab">
+
+<img width="1426" alt="gmyss1" src="https://github.com/Ozgur32/Gym-App/assets/121760057/0ee07814-742d-47e0-ad0a-1985a81daf86">
+
+<img width="1440" alt="gymss" src="https://github.com/Ozgur32/Gym-App/assets/121760057/ff454a76-7576-4099-b516-b4fa1799c83d">
